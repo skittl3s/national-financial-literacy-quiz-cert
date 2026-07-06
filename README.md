@@ -4,4 +4,4 @@ Participation certificate for the **National Financial Literacy Quiz 2026 (Colle
 
 ## Certificate
 
-[View Certificate](./Certificate_9945948615_24032026033750.pdf)
+[View Certificate](./National%20Financial%20Literacy%20Quiz%202026.pdf)
